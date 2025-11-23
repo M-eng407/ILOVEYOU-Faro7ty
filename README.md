@@ -1,1 +1,0 @@
-# ILOVEYOU-Faro7ty
